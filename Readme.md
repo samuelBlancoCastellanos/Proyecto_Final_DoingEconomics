@@ -1,6 +1,6 @@
 # Impacto de la Construcción del Metro de Bogotá en Vendedores Ambulantes de la Calle 72  
 ### Haciendo Economía – 2025-II  
-**Autores:** Samuel Blanco Castellanos, Sofía López, Laura Rojas
+**Autores:** Samuel Blanco Castellanos, Sofía Obando, Laura Valentina, Julian, David Catral
 
 ---
 
